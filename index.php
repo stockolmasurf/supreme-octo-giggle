@@ -1,0 +1,1 @@
+<meta http-equiv="refresh" content="1;URL=https://tinyurl.com/yc7sf3be/">
